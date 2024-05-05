@@ -1,11 +1,9 @@
+<p align="center">
 # and i mean it.
-<p align="center">
+</p>
 </br> <img src="https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/e5066e55-dceb-462f-af51-fcbd17519c41" width="60px" height="60px">
-</p>
-
-<p align="center">
 </br> <img src="https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/f6410ec1-eff0-468e-b1d2-92df594c678e" width="60px" height="60px">
-</p>
+
 
 
 
