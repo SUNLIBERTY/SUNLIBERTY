@@ -1,4 +1,4 @@
-# and i mean it. </br> <img src=("https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/e5066e55-dceb-462f-af51-fcbd17519c41") width="60px" height="60px">
+# and i mean it. </br> <img src="https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/e5066e55-dceb-462f-af51-fcbd17519c41" width="60px" height="60px">
 
 
 
