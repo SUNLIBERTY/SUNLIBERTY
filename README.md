@@ -1,4 +1,4 @@
-# and i mean it. ![8fa0180e7f07c6c1013777d6f6eac7d4](https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/dd35eaf0-5858-4619-811a-d7330c456057<img scr="https://url.to/mage.png" width="70")
+# and i mean it. ![8fa0180e7f07c6c1013777d6f6eac7d4](https://github.com/SUNLIBERTY/SUNLIBERTY/assets/161395048/dd35eaf0-5858-4619-811a-d7330c456057<img>height="70")
 
 
 
