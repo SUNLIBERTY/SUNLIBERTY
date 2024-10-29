@@ -9,4 +9,9 @@
 ](https://github.com/user-attachments/assets/b633f3fb-317f-4b10-b073-a427691d2233)
 
 
+hii! you can call me *lina*. 
+
+int with me if you want :D
+
+
 
