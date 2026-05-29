@@ -12,10 +12,3 @@
 
 
 *hii! you can call me lina*. 
-
-
-
-
-
-
-
