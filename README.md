@@ -15,7 +15,7 @@
 
 
 
-*sorry, afk almost all the time. BUT whisp to interact if you want :D*
+
 
 
 
